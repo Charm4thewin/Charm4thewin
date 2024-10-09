@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Charm4thewin
+- 👋 Hi, I’m @Charm4thewin (Yumi for short)
 - 👀 I’m interested in gaming, nature, japan, music and many other thing
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on small project to learn how to code properly
